@@ -1,1 +1,1 @@
-I am a graduate student in statistics.
+Majoring in statistics.
